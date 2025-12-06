@@ -1,0 +1,1 @@
+when you invest you get 10× of your initial investment after 7days and the the good news is that you can start with as low as $50![Screenshot_20251122-094157](https://github.com/user-attachments/assets/a3bfb47a-550c-4877-9a4d-a85aae8c38d8)
